@@ -81,11 +81,11 @@ I combine **speed** with **structure**, delivering scalable systems for real cli
 
 > Open to freelance opportunities, technical partnerships, and full-time positions.
 
-- 📩 Email: MahmoudMohamed1126@gmail.com  
-- 🟣 WhatsApp: Available upon request  
+- 📩 Email: MahmoudMohamed111126@gmail.com  
+- 🟣 WhatsApp: +20 155 409 9076  
 - 🖥 GitHub: [MahmoudMohamed1126](https://github.com/MahmoudMohamed1126)  
+- 💼 LinkedIn: [linkedin.com/in/mahmoud-mohamed1126](www.linkedin.com/in/mahmoud-mohamed1126)  
 - 🌍 Portfolio: (Coming Soon)
-
 ---
 
 > “Automate what’s repetitive. Optimize what’s manual. Elevate what matters.”  
